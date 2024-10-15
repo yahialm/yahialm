@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **yahia.lamhafad.03@gmail.com**
 
-- ⚡ Fun fact **I hate cheese :)**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
